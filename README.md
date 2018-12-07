@@ -14,6 +14,8 @@ to me to Ponyboy. We're now runnning away. I can't say where tho. Will keep you 
 ## 1958-09-30 10:25 An update + Boredom :|
 Sorry that I haven't been posting. I just got internet. Who would've guess that this old Church had wifi? Really cool too since it's 1958! Right now I have nothing to do, so expect regular updates.
 
+![Boring](/SpriteCranberry.gif){: .center-image }
+
 ## 1958-09-31 11:30 JOHNNY NEEDS YOUR HELP
 Hey guys, Pony here. I normally don't post on Johnny's blog as it's his business and watnot, but that is not the matter. What's really important is that JOHNNY GOT HURT. We tried to save children from a burning fire but a large piece of rubble hit him and now he's in critical condition. So we set him up a Go Fund Me. Please click [THIS LINK](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
