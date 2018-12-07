@@ -19,3 +19,4 @@ Sorry that I haven't been posting. I just got internet. Who would've guess that 
 ## 1958-09-31 11:30 JOHNNY NEEDS YOUR HELP
 Hey guys, Pony here. I normally don't post on Johnny's blog as it's his business and watnot, but that is not the matter. What's really important is that JOHNNY GOT HURT. We tried to save children from a burning fire but a large piece of rubble hit him and now he's in critical condition. So we set him up a Go Fund Me. Please click [THIS LINK](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
+![He DeD](/proxy.jfif){: .center-image }
