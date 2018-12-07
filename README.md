@@ -28,7 +28,7 @@ Syntax highlighted code block
 
 [Link](url) and ![Image](src)
 
-[Page 2](www.rohitdasgupta.github.io/_posts/)
+[Page 2](www.rohitdasgupta.github.io/_posts/1958-05-20-FIRST-BLOG.md)
 ```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
