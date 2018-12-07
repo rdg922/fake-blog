@@ -9,6 +9,8 @@ Me and Ponyboy got in a tussle with those Soc's in that cursed Blue Mustang and 
 one too many times. My heart aches and I'm going to have to live with that regret. But at least I stopped them From doing what they did 
 to me to Ponyboy. We're now runnning away. I can't say where tho. Will keep you guys posted.
 
+![Running Away](/RunAway.jfif){: .center-image }
+
 ## 1958-09-30 10:25 An update + Boredom :|
 Sorry that I haven't been posting. I just got internet. Who would've guess that this old Church had wifi? Really cool too since it's 1958! Right now I have nothing to do, so expect regular updates.
 
