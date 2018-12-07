@@ -34,3 +34,5 @@ WE WON THE BRAWL. We got those #$%#%$#% #$% #$%#$%$#. WE WON! I'm going to check
 Johnny Cade passed away due to complications in the hospital. The doctors couldn't save him. Our Heart is broken, all of us. He was oyr brother, he was our friend. Johnny is not dead tho. He was somewhere else-maybe asleep in the lot, or playing the pinball machine in the bowling alley, or sitting on the back stepsof the church in Windrixville. He'll be there, for us. But now, his readers no longer have a home. I cannot continue this, I'm sorry. 
 
 ![He DeD](/proxy.jfif){: .center-image }
+
+I decided to write a little Bit about him, here's his [character analysis](https://docs.google.com/document/d/1nhcZYcHi_Xx4NOd75Tmwykw5euAaO_CjYAGUZ00peqo/edit?usp=sharing)
